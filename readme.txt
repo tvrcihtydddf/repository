@@ -1,5 +1,4 @@
 I DON'T KNOW ASK WHAT?
-<<<<<<< HEAD
 
 18588697580
 
